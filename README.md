@@ -1,1 +1,2 @@
-# tioakira bsou numa pessoa pregisosa
+# tioakira 
+uma pessoa pregisosa
